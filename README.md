@@ -1,0 +1,1 @@
+# Kim-s-chuligani-co-utrzymuj-ludzi-w-biedzie-jak-bezdomnych.-
